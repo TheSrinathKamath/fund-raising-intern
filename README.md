@@ -1,7 +1,13 @@
 # Fundraising Intern at [Make A Difference](https://makeadiff.in/).
 
+Duration: June 2015 - June 2016
+Location: Kochi, [View on map](https://goo.gl/maps/YxN1Fws1pF31ZmTz6)
+
 ## Roles & responsibilties
 
+Role: Fundraising intern
+
+**Achievements**
 Organised 3 major charity fundraising events in 2016:
 
 1) `Copa De MAD` - A charity sporting event which saw a participation of `30 prestigious football teams` racing against each other for charity. The event raised around **2.3 Lakhs**.
