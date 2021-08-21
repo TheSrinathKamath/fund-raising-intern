@@ -5,7 +5,7 @@ Location: Kochi, [View on map](https://goo.gl/maps/YxN1Fws1pF31ZmTz6)
 
 ## Roles & responsibilties
 
-Role: Fundraising intern
+**Role:** Fundraising intern
 
 **Achievements**
 Organised 3 major charity fundraising events in 2016:
